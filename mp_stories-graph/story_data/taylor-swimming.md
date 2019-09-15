@@ -1,0 +1,1 @@
+Taylor enjoys herself in the swimming pool. Because it is very hot outside. After swimming for an hour, she feels tired and then goes back home.

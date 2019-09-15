@@ -1,0 +1,1 @@
+Taylor enjoys herself watching Finding Nemo, because it is her favorite movie. After watching movie, she goes back home and goes to sleep.

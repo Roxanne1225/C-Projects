@@ -1,0 +1,1 @@
+Taylor Swift loves playing basketball with her friends. After playing basletball for an hour, she feels tired and then goes back home.

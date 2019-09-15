@@ -1,0 +1,1 @@
+Taylor Swift buys a lot of different things during her shopping time. She really enjoys herself. After shopping, she feels tired and then goes back home.

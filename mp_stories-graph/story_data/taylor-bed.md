@@ -1,0 +1,1 @@
+Taylor Swift thinks she was so tired all the time. It is very important for her to take some rest. So, she decides to stay in the bed for the rest of her day.

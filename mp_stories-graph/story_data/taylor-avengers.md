@@ -1,0 +1,1 @@
+She loves the super heroes in the movie, especially spider man. After watching movie, she goes back home and goes to sleep.
